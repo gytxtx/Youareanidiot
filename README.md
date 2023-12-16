@@ -1,1 +1,1 @@
-#an idiot 您将
+# You are an idiot
